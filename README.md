@@ -1,1 +1,1 @@
-my first readme
+proud of you girl!
